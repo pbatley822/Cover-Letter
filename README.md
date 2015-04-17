@@ -1,4 +1,4 @@
-# Cover-Letter
+# Paul Batley
 To whom it may concern:
 
 I greatly appreciate your consideration and your time. I am excited to learn more about an opportunity to work with you.
