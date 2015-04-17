@@ -18,9 +18,6 @@ Overall, I am a very capable and bright young man looking to excel at everything
 Again, thank you for your time and consideration. 
 
 Kind Regards,
-
 Paul Batley
-
 408-891-4230
-
 paulbatley@gmail.com
